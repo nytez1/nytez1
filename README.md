@@ -1,4 +1,2 @@
-## yo
-
-## stay so fresh so clean think they like me 
+## stay so fresh so clean think they like me 💎
 
