@@ -1,6 +1,4 @@
 ## yo
 
-itachi > all other characters
-
-it is what it is 
+## stay so fresh so clean think they like me 
 
