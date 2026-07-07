@@ -1,2 +1,2 @@
-## stay so fresh so clean think they like me 💎
+Student UvA Bachelor Artificial Intelligence 2nd year
 
